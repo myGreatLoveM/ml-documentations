@@ -1,0 +1,7 @@
+---
+tags:
+  - Struggle
+  - HardWork
+---
+
+# Education
